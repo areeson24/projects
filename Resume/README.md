@@ -1,1 +1,1 @@
-Most recent version of resume.
+Most recent version of my resume.
